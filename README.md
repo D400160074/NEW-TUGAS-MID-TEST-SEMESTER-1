@@ -1,0 +1,2 @@
+# NEW-TUGAS-MID-TEST-SEMESTER-1
+MID TEST , Soal Nomor 1,4,dan5.
